@@ -24,13 +24,6 @@
 
 🎓 Final year **Bachelor of IT (Hons) in Software Engineering** @ **Universiti Kuala Lumpur — MIIT**
 
-🌟 **CGPA 3.58 / 4.00** · Dean's List
-
-🌏 **2× International Representative** — selected to represent UniKL MIIT in Surabaya, Indonesia
-
-🏆 **Project Manager** of 59 students — CSR with Perbadanan Stadium Malaysia (Government Agency)
-
-📜 **22+ Certifications** — IBM Generative AI Engineering · IBM AI Developer · Google Project Management
 
 ---
 
